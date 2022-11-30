@@ -1,1 +1,1 @@
-# tugasmagang
+# tugasmagangs
